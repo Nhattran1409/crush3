@@ -1,1 +1,1 @@
-link chạy: https://trannhat.github.io/crush3/
+link chạy: https://nhattran1409.github.io/crush3/
